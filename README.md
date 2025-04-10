@@ -1,1 +1,1 @@
-# field_guide
+Chesser, R. T., S. M. Billerman, K. J. Burns, C. Cicero, J. L. Dunn, B. E. Hernández-Baños, R. A. Jiménez, Oscar Johnson, A. W. Kratter, N. A. Mason, P. C. Rasmussen, and J. V. Remsen, Jr. 2024. Check-list of North American Birds (online). American Ornithological Society. https://checklist.americanornithology.org/taxa/
